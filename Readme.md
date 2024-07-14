@@ -78,6 +78,6 @@ All rights reserved by Sajith N Silva @2024
 Connect with me:
 - GitHub: [https://github.com/sajithnsilvame](https://github.com/sajithnsilvame)
 - Twitter: [https://x.com/SajithNSilvame](https://x.com/SajithNSilvame)
-- LinkedIn: [https://www.linkedin.com/in/sajith-nishantha-silva](https://www.linkedin.com/in/sajith-nishantha-silva)
+- LinkedIn: [https://www.linkedin.com/in/sajith-nishantha-silva-265950213/](https://www.linkedin.com/in/sajith-nishantha-silva-265950213/)
 - Facebook: [https://www.facebook.com/sajithnsilva.me](https://www.facebook.com/sajithnsilva.me)
 - Instagram: [https://www.instagram.com/sajithnsilvame](https://www.instagram.com/sajithnsilvame)
